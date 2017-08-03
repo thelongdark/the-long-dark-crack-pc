@@ -1,0 +1,2 @@
+# the-long-dark-crack-pc
+tСпасибо to all of you for your support over many years. We couldn't have done it without you.  Please enjoy Episodes 1 and 2 of WINTERMUTE.  During the day we will monitor the forums and bug reports and fix them as soon as possible.  Keep in mind that WINTERMUTE is not a mode vijivania, so some things may differ from what you used previously. Please be patient and give the game a chance.  Thank you  Team Hinterland
